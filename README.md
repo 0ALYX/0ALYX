@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @0ALYX
-- 👀 I’m interested in YOU
-- 🌱 I’m currently learning YOU
-- 💞️ I’m looking to collaborate on ME and YOU
-- 📫 How to reach me? through YOU
+- 👀 I’m looking for ";" line 109 needs one
+- 🌱 I’m currently on my journey to improve
+- 💞️ I’m looking forward to reach my future achievements 
+- 📫 How to reach me? - londonlorraine0242@gmail.com
 ![ALYX](https://user-images.githubusercontent.com/114725662/193208996-b071e40a-71d1-4f3a-bdb8-ff2bbcfe64c5.jpg)
 
 
